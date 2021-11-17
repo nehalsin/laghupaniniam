@@ -16,3 +16,7 @@
 
 ![lp-naamrupavali-2021-11-12-4](lp-naamrupavali-2021-11-12-4.jpg)
 
+## २०२१-११-१४
+
+![lp-namrupavali-तिङन्त-2021-11-14-1](lp-namrupavali-तिङन्त-2021-11-14-1.jpg)
+
